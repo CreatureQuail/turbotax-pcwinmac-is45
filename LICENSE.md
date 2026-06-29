@@ -1,4 +1,4 @@
-# 
+# Intelligent TurboTax modèles pour Mac OS | Exclusif TurboTax modèles pour PC Windows. Avec capture mobile des reçus et planification des rapports — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
